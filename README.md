@@ -1,0 +1,1 @@
+As you want to know, this project is open source at least until this project is finished and I can decide whether to make this project paid or not
